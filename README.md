@@ -92,5 +92,5 @@ Design & Planning Phase
 - Demo video
 
 
-                                                                          Thank You
+                                                                 Thank You
 
